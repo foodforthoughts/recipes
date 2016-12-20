@@ -1,1 +1,0 @@
-Paneer(Cottage Cheese) quesadilla
